@@ -1,1 +1,3 @@
-# lab3_firstmap.1
+## Lab 3 First Map
+Discover this 5.1-mile out-and-back trail near Blowing Rock, North Carolina. Generally considered a moderately challenging route, it takes an average of 2 h 5 min to complete. This is a very popular area for hiking, horseback riding, and running, so you'll likely encounter other people while exploring. The trail is open year-round and is beautiful to visit anytime. Dogs are welcome, but must be on a leash.
+Enjoy this fairly easy trail that takes visitors along a few switchbacks, through meadows, and to an observation tower. The trail begins at Moses Cone Manor and travels along a wide gravel path. There is a short detour to Cone Cemetery for those who enjoy the history of this area. The trail then switchbacks through the forest to the summit with two decent overlooks along the way. Once you reach the top, you will find the fire tower, which offers beautiful 360-degree views.
